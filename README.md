@@ -1,4 +1,4 @@
-# professora
+# professora 🫀
 ## Simone ##
 
  estaremos juntos nessa jornada para a navegação do 
